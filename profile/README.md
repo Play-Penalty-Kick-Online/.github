@@ -6,6 +6,7 @@ Get ready for an **epic**, action-packed sports showdown with **Penalty Kick Onl
 
 Whether you're a **casual gamer** looking for a quick challenge or a **hardcore striker** aiming for perfection, this **hyper-casual** browser game delivers an **intense**, **fast-paced**, and **addictive** experience you won’t want to miss.
 
+## <a href="https://izigames.net/">👉 Play Penalty Kick Unblocked👈</a>
 ---
 
 ### 🎯 **Game Features:**
